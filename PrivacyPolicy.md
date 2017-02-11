@@ -7,4 +7,5 @@ We are not sharing any information to third party or we are not sending any data
 
 <b>Contact us</b>
 
-If you have any questions regarding privacy while using the Application, or have questions about our practices, please contact us via email at inquiry.eswamera@gmail.com
+If you have any questions regarding privacy while using the Application, or have questions about our practices, please contact us via email at andybolnd@gmail.com
+
